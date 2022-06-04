@@ -1,6 +1,6 @@
 
 
-2e's custom services Twitter [@pwnd2e](https://twitter.com/pwnd2e).
+Twitter [@pwnd2e](https://twitter.com/pwnd2e).
 
 
 
