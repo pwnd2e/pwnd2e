@@ -5,7 +5,8 @@ We create aka copy pasta  anything and everything
 Discord [@pwnd2e](https://discord.gg/5dZdRt44WT).
 
 ![2cs](https://user-images.githubusercontent.com/30393829/135623204-b436ed81-0119-4610-867c-3122dc8f3851.jpg)
-!<p align="center">
+!
+<p align="center">
   <img width="460" height="300" src="<p align="center">
   <img width="460" height="300" src="http://www.fillmurray.com/460/300">
 </p>">
