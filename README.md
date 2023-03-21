@@ -1,5 +1,5 @@
 
-# Hi I’m mrfredtouhey aka pwnd2e I run [@2escustomservices](https://www.2escustomservices.com) links and domains We create aka copy pasta  anything and everything
+# Hi I’m mrfredtouhey aka pwnd2e I run [@2escustomservices](https://www.2escustomservices.com/2es_Pages) links and domains We create aka copy pasta  anything and everything
 
 
 
